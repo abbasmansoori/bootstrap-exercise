@@ -1,1 +1,1 @@
-# bootstrap-exercise
+# MUSEUM OF CANDY
